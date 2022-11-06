@@ -1,1 +1,1 @@
-# Pensamento_1A
+<h\>ditadura da beleza<\h/>
